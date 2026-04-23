@@ -155,7 +155,7 @@ Use these accounts after seeding to explore the different platform roles:
 *B.Tech in Electronics and Communication Engineering*
 Guru Tegh Bahadur Institute of Technology (GGSIPU), 2026
 
-[LinkedIn](https://linkedin.com/in/vedang-sai-rath) · [GitHub](https://github.com/VedangSaiRath) · [Portfolio](#)
+[LinkedIn](https://linkedin.com/in/vedang-sai-rath) · [GitHub](https://github.com/Nighthawk1704) 
 
 ---
 
